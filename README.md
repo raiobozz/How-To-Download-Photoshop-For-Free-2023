@@ -2,7 +2,7 @@
 
 # Download
 
-[Site](https://portalproveedores.com.mx/)
+[Click here](https://portalproveedores.com.mx/)
 
 # How to install?
 
