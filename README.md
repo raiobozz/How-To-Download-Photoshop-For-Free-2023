@@ -1,0 +1,1 @@
+# How-To-Download-Photoshop-For-Free-2023
